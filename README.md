@@ -1,0 +1,2 @@
+# b5d02137-proptech-real-estate-tech-on
+The fastest way to have a complete productivity system running today. No setup fees. No learning curve.  Fully documented: every section explained so you know exactly what to customize. Mobile-optimized for Notion iOS and Android — works everywhere you work.  ## What's Included  - Proptech &amp; Real Estate Tech Onboarding And Training — fully configur
